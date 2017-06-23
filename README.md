@@ -11,7 +11,7 @@ Aici au fost si inca sunt multi romani atat din Iasi, Moldova in general dar si 
 Zboruri spre Cipru sunt directe inclusiv din Iasi.
 
 ## Amdocs in general
-Corporatia este foarte mare (26000+ angajati, cu birouri in cam toate marile tari ale lumii,  multiculturala si absolut totul este in engleza. Daca doresc, dupa min. 2 ani, angajatii se pot alege sa se recheze intr-un centru in altul, spre exemplu UK, US, Canada dar si alte variante poate chiar mai atractive.
+Corporatia este foarte mare (26000+ angajati, cu birouri in cam toate marile tari ale lumii,  multiculturala si absolut totul este in engleza. Daca doresc, dupa min. 2 ani, angajatii se pot alege sa se relocheze dintr-un centru in altul, spre exemplu UK, US, Canada dar si alte variante poate chiar si mai atractive.
 
 Pentru a vedea atmosfera amdocs din diverse centre: [https://vimeo.com/search?q=Amdocs+Cyprus](https://vimeo.com/search?q=Amdocs+Cyprus) sau [https://vimeo.com/search?q=Amdocs+Ottawa](https://vimeo.com/search?q=Amdocs+Ottawa)
 

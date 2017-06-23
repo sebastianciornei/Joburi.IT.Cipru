@@ -29,7 +29,6 @@ CV-ul si informatiile despre pozitia preferata se pot trimite la: [sciornei@amdo
 (Sau daca preferati direct, cu referinta: *sciornei* )
 
 Varianta pdf a acestui anunt (usor de printat): [Joburi.IT.Cipru.pdf](https://github.com/sebastianciornei/Joburi.IT.Cipru/blob/master/pdf/Joburi.IT.Cipru.pdf)
-Link-ul spre pagina acest anunt:
 
-![IT Jobs Cipru inginer software](/images/Joburi.IT.Cipru.png)   
+Link-ul spre pagina acest anunt: ![IT Jobs Cipru inginer software](/images/Joburi.IT.Cipru.png)   
 

@@ -24,6 +24,9 @@ In Cipru te poti descurca numai cu limba engleza peste tot, inclusiv, spitale, i
 Fiind o tara Mediteraneeana, sunt locuri de vizitat din plin, totul este turistic, mediul foarte international (atat in office cat si in oras).
 
 ## Informatii si cum poti aplica:
-CV-ul si informatiile despre pozitia preferata se pot trimite la: *sciornei@amdocs.com* . 
+CV-ul si informatiile despre pozitia preferata se pot trimite la: mailto: sciornei@amdocs.com .
 (Sau daca preferati direct, cu referinta: *sciornei* )
+
+link-ul spre pagina web cu acest anunt:
+![IT Jobs Cipru inginer software](/images/Joburi.IT.Cipru.png)   
 

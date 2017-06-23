@@ -8,7 +8,7 @@ Pozitiile sunt foarte multe (sute) si variaza in functie de pasiune si cunostint
 ## Amdocs Cipru
 Aici au fost si inca sunt multi romani atat din Iasi, Moldova in general dar si Bucuresti si alte zone alte tarii. Din cei ~400 angajati, vorbitori de limba romana sunt peste 70 (romani si moldoveni, unii de peste 12 ani aici). 
 
-Zboruri spre Cipru sunt directe inclusiv din Iasi.
+Zboruri spre Cipru sunt directe atat din Bucuresi, cat si din Iasi si Cluj.
 
 ## Amdocs in general
 Corporatia este foarte mare (26000+ angajati, cu birouri in cam toate marile tari ale lumii,  multiculturala si absolut totul este in engleza. Pentru doritorii de calatorii, Amdocs este ideal, pentru ca oportunitati se gasesc din plin.

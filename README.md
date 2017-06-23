@@ -6,9 +6,9 @@ Centrul de dezvoltare software Amdocs din Cipru angajeaza atat absolventi cat si
 Pozitiile sunt foarte multe (sute) si variaza in functie de pasiune si cunostinte: dezvoltatori software, testeri, SW arhitect, Inginer sau Expert Radio Frecventa, Administrator de sistem, Administrator DB, Business Analist, Inginer suport, etc. Exemple:  [https://jobs.amdocs.com/search/?q=&locationsearch=cyprus](https://jobs.amdocs.com/search/?q=&locationsearch=cyprus).
 
 ## Amdocs Cipru
-Aici sunt inca sunt multi romani atat din toate zonele tarii: Iasi, Bucuresti, Cluj si alte zone alte tarii. Din cei ~400 angajati, vorbitori de limba romana sunt peste 70 (romani si moldoveni, unii de peste 12 ani aici). 
+In companie sunt destul de multi romani (au fost si mai multi). Orasele cel mai bine reprezentate sunt: Iasi, Bucuresti. Din cei ~400 angajati, vorbitori de limba romana sunt peste 70 (romani si moldoveni, unii de peste 12 ani aici). 
 
-Zboruri spre Cipru sunt directe atat din Bucuresi, cat si din Iasi si Cluj.
+Zboruri directe spre Cipru (Larnaca) sunt din Iasi, Bucuresti (3 variante) si Cluj.
 
 ## Amdocs in general
 Corporatia este foarte mare (26000+ angajati, cu birouri in cam toate marile tari ale lumii,  multiculturala si absolut totul este in engleza. Pentru doritorii de calatorii, Amdocs este ideal, pentru ca oportunitati se gasesc din plin.
